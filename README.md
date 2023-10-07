@@ -1,4 +1,4 @@
-## ayce K. Thedford 🚀
+## Jayce K. Thedford 🚀
 
 I am an electrical engineer and computer science double major at Tarleton State University! I'm passionate about all things space, and strive to push myself to learn and grow in various ways. I am super active on and off campus, and love to tackle new coding projects!
 
